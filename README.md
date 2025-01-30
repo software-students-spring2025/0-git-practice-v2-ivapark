@@ -1,4 +1,6 @@
-# What is DeepSeek, and why is it causing Nvidia and other stocks to slump?
+# What is DeepSeek, and why is it causing Nvidia and other stocks to slump? 
+# https://www.cbsnews.com/news/what-is-deepseek-ai-china-stock-nvidia-nvda-asml/
+
 
 https://www.cbsnews.com/news/what-is-deepseek-ai-china-stock-nvidia-nvda-asml/
 
